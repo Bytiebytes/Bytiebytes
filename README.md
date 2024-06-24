@@ -17,16 +17,14 @@ Crowning ( 👑 ) my skins is greatly appreciated !! thank you all! <33
 Dni if your under 13, or over 18 btw.. I feel uncomfortable talking to both 
 adults and children . I'm a teenager,, it's kinda weird for me to be doing that 
 
-DNI LIST: ˚˖𓍢ִ໋🦢˚
+DNI LIST: ˚˖𓍢ִ໋🦢˚ (if your already friends with me, it's okay.)
 
 Hazbin/Helluva boss fans. 🚩🚫
 
 
-MHA fans. 🚩🚫
-
+MHA fans. (thin ice) 🚩🚫
 
 Proshippers. 🚩🚫
-
 
 Groomers. 🚩🚫
 
