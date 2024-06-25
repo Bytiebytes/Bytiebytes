@@ -1,5 +1,10 @@
 ⋆.˚🦋ᝰ.ᐟ
-Bytez/Bytes/Bytie/Byte
+
+﹒⟡ 📌﹒; any prns ﹒﹒︴ she/they pref!!  ◎﹐📎
+☆﹒ꕀ﹔Bytez / Bytes / Bytie 🌊﹒ꕀ﹒
+ꕀ﹒ᶻz ; Pan / Female ♀️ (AFAB) / ESTJ !!
+
+リ﹒Ꮺ — ♡﹒; “ I could even learn how to love, like you. ” /lyr 🎧
 
 
 ✩°🌊⋆⸜ 🎧✮🫧
