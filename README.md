@@ -33,8 +33,8 @@ if you want to say anything, please whisper it!!!
 📌 
 Crowning ( 👑 ) my skins is greatly appreciated !! thank you all! <33
 
-📌 
-Dni if your under 13, or over 18 btw.. I feel uncomfortable talking to both 
+📌 (If your already friends, it's fine.)
+Dni if your under 12, or over 18 btw.. I feel uncomfortable talking to both 
 adults and children . I'm a teenager,, it's kinda weird for me to be doing that 
 
 ----------------------------ꕀ﹔💤
