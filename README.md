@@ -39,12 +39,7 @@ adults and children . I'm a teenager,, it's kinda weird for me to be doing that
 
 ----------------------------ꕀ﹔💤
 
-DNI LIST: (if your already friends with me, it's okay.)
-
-Hazbin/Helluva boss fans. 🚩🚫
-
-
-MHA fans. (thin ice) 🚩🚫
+Dni :
 
 Proshippers. 🚩🚫
 
