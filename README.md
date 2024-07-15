@@ -4,9 +4,10 @@
 
 ☆﹒ꕀ﹔Bytez / Bytes / Bytie 🌊﹒ꕀ﹒
 
-ꕀ﹒ᶻz ; Pan / Female ♀️ (AFAB) / ESTJ !!
+ꕀ﹒ᶻz ; Pan / Female ♀️ / 15 / ESTJ !!
 
-リ﹒Ꮺ — ♡﹒; “ I could even learn how to love, like you. ” /lyr 🎧
+リ﹒Ꮺ — ♡﹒; “Lord, give me one more chance,
+どうにかしたいの ” /lyr 🎧
 
 ----------------------------ꕀ﹔💤
 
