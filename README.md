@@ -50,11 +50,21 @@ Racists. 🚩🚫
 
 General criteria. 🚩🚫
 
+Hazbin/Helluva. 🚩🚫
+
+Homophobics. 🚩🚫
+
+People who don't respect systems. 🚩🚫
+
+DSMP // QSMP 🚩🚫
+
+MHA (Yall r weird..) 🚩🚫
+
 ----------------------------ꕀ﹔💤
 
 🎉 INTERESTS!! 🎉
 
-• Splatoon 📎
+• Splatoon 3 📎
 
 • Scott Pilgrim 📎
 
@@ -65,3 +75,14 @@ General criteria. 🚩🚫
 • Tomodachi life 📎
 
 • Sky cotl 📎
+
+• Madoka Magica 📎
+
+• LdShadowLady enjoyers 📎
+
+• Nintendogs  📎
+
+• Splatoon 2 📎
+
+• Old ds and 3ds games  📎
+
