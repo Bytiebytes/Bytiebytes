@@ -60,6 +60,8 @@ DSMP // QSMP 🚩🚫
 
 MHA (Yall r weird..) 🚩🚫
 
+Yandere dev fans 🚩🚫
+
 ----------------------------ꕀ﹔💤
 
 🎉 INTERESTS!! 🎉
@@ -85,4 +87,8 @@ MHA (Yall r weird..) 🚩🚫
 • Splatoon 2 📎
 
 • Old ds and 3ds games  📎
+
+• Class of 09  📎
+
+• Coroika  📎
 
