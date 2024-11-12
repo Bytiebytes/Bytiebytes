@@ -4,7 +4,7 @@
 
 ☆﹒ꕀ﹔Bytez / Bytes / Bytie 🌊﹒ꕀ﹒
 
-ꕀ﹒ᶻz ; Pan / Female ♀️ / 15 / ESTJ !!
+ꕀ﹒ᶻz ; Pan / Female ♀️ / ESTJ !!
 
 リ﹒Ꮺ — ♡﹒; “Lord, give me one more chance,
 どうにかしたいの ” /lyr 🎧
